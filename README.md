@@ -1,4 +1,4 @@
-# Majestic FAMQ bot
+# Majestic FAMQ bot 🌟Comming soon🌟
 
 > RU
 > 
